@@ -1,1 +1,3 @@
 # -Recambio-de-guardia-en-Buckingham-una-tradici-n-que-perdura
+El recambio de guardia en Buckingham no es solo una ceremonia, es una manifestación viva de la historia británica. Día tras día, los turistas se reúnen para ver a los soldados con sus trajes de época marchar con precisión al ritmo de tambores y trompetas. Este espectáculo, aunque tradicional, sigue siendo un fuerte imán turístico, donde la disciplina de los guardias y la expectación del público crean un ambiente único en Londres. Un ritual que conecta el pasado con el presente.
+https://marcelohidalgosola.com.ar/viaje-por-europa/recambio-de-guardia-en-buckingham-una-experiencia-turistica-unica/
